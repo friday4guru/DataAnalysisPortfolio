@@ -14,7 +14,7 @@ I have taught over 100 people how to use data tools effectively and worked on pr
 
 ---
 
-## 🤝 Connect with Me
+## 🤝 Connect with me
 -- ✉️ Email: friday4tech@gmail.com
 
 ---
